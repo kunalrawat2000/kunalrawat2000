@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning everything about the Computer Vision
 - 👯 I’m looking to collaborate with other content creators
-- 🥅 2021 Goals: Build a strong portfolio
+- 🥅 2022 Goals: Build a strong portfolio
 - ⚡ Fun fact: I love reading mangas, watching animes and playing games
 
 ### Connect with me:
